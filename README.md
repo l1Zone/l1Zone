@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I'm x2l1, its my profile just to record learning!
+😄😄😄😄😄😄😄😄😄😄
 
 <!--
 **l1Zone/l1Zone** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
